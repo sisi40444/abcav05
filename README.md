@@ -20,4 +20,4 @@
 结语  
 在线视频平台已成为获取日本AV资源的首选方式。只需一个链接，就能开启安全、流畅、高清的观影之旅，让每一次点击都物超所值。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/sisi40444/abcav05 )</span>
